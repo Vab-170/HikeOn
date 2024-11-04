@@ -5,7 +5,7 @@
 Vaibhav Gupta - Vab-170
 Jack Li - lijack032
 Arshiya Mahmoodinezad - X-arshiya-X
-Sumaid Lakho - ??????
+Sumaid Lakho - salakho139
 
 ## Introduction
 
